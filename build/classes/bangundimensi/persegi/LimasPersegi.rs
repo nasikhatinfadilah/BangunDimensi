@@ -1,0 +1,1 @@
+bangunDimensi.persegi.LimasPersegi
